@@ -1,2 +1,0 @@
-# ZenNetworks.sk
-ZenNetworks
